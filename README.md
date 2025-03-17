@@ -7,7 +7,6 @@
 ### 🌐 Connect with Me
 
 - **LinkedIn:** [linkedin.com/in/b-venkata-sravan-kumar/](https://www.linkedin.com/in/b-venkata-sravan-kumar/)
-- **GitHub:** [github.com/BVenkataSravanKumar](https://github.com/BVenkataSravanKumar)
 
 ---
 
